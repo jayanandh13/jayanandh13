@@ -19,7 +19,9 @@ Welcome to my GitHub profile! I’m passionate about creating and exploring new 
 📫 How to reach me...
  Email - jayanandharadhyula007@gmail.com
  LinkedIn - https://www.linkedin.com/in/jayanandh-sai-ganesh-aradhyula
+ 
  Twitter - @Jay37613652
+ 
  Instagram - jayanandh_.aradhyula
 
 
