@@ -1,6 +1,6 @@
 👋 Hi, I’m Jayanandh Aradhyula.
 
-👀 I’m interested in  Web development & Web Designing.
+👀 I’m interested in  Web development & Programming.
 
 🌱 I’m currently learning Full stack web development and DSA.
 
