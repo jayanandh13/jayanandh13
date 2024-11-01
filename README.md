@@ -6,10 +6,10 @@
 
 - **📫 How to reach me**:
 
-**LINKEDIN**:  https://www.linkedin.com/in/jayanandh-sai-ganesh-aradhyula
+  **LINKEDIN**:  https://www.linkedin.com/in/jayanandh-sai-ganesh-aradhyula
 
-**INSTAGRAM**: https://www.instagram.com/jayanandh_.aradhyula/
+  **INSTAGRAM**: https://www.instagram.com/jayanandh_.13/
 
-**TWITTER**: https://x.com/Jay37613652
+  **TWITTER**: https://x.com/Jay37613652
 
-**MAIL**: jayanandharadhyula007@gmail.com
+  **MAIL**: jayanandharadhyula007@gmail.com
