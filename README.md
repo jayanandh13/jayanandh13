@@ -1,4 +1,4 @@
-- **👋 Hi, I’m Jayanandh Aradhyula.**
+- **👋🏻 Hi, I’m Jayanandh Aradhyula.**
 
 - **[ ] "Passionate about Java and machine learning."**
 
