@@ -1,8 +1,8 @@
 - **👋 Hi, I’m Jayanandh Aradhyula.**
 
-- **👀 I’m interested in  Web development & Programming.**
+- **👀 "Passionate about Java and machine learning."**
 
-- **🌱 I’m currently learning Full stack web development and DSA.**
+- **🌱 I’m currently learning DSA.**
 
 - **📫 How to reach me**:
 
