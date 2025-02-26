@@ -1,6 +1,6 @@
 - **👋🏻 Hi, I’m Jayanandh Aradhyula.**
 
-- **[ ] "Passionate about Java and machine learning."**
+- **[ ] "Passionate about learning new technologies"**
 
 - **🌱 I’m currently learning DSA.**
 
