@@ -8,4 +8,4 @@
 
    **LINKEDIN** :  https://www.linkedin.com/in/jayanandh-sai-ganesh-aradhyula
   
-   **MAIL** : jayanandharadhyula007@gmail.com
+   **MAIL** : jayanandh.aradhyula@gmail.com
